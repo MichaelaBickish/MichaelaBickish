@@ -11,7 +11,7 @@ I enjoy creating improved & efficient solutions that make everyone happier!
 mmbickish@gmail.com | www.linkedin.com/in/michaela-bickish
 
 ## About Me
-- 💬 I enjoy talking all things business & entrepreneurship
+- 💬 I enjoy talking all things business, entrepreneurship & personal finance
 - 🏕 Always 100% ready for good hiking, camping & outdoor adventures
 - 🎵 I have a deep appreciation for theatre and the arts
 - 😄 Yoga, meditation and intentional movement are simple acts that light my soul up
