@@ -1,8 +1,9 @@
 ### Hi there 👋
 
-I'm Michaela Bickish. I have a background in business operations and finance with a new passion for coding. 
+I'm Michaela Bickish. I have a background in business operations and finance with a new passion for software development.
 
 I enjoy creating improved & efficient solutions that make everyone happier!
+I love applying responsive design principles and watching my web pages shrink into mobile screens and still look fantastic.
 
 - 🔭 I’m currently learning full-stack software development!
 - 🖥 <a href ="https://michaelabickish.github.io/portfolio/">Check out my landing page / portfolio</a>
