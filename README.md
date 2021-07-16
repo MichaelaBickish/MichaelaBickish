@@ -5,7 +5,7 @@ I'm Michaela Bickish. I have a background in business operations and finance wit
 I enjoy creating improved & efficient solutions that make everyone happier!
 I love applying responsive design principles and watching my web pages shrink into mobile screens and still look fantastic.
 
-- 🔭 I’m currently learning full-stack software development!
+- 🔭 I’m a full-stack software developer!
 - 🖥 <a href ="https://michaelabickish.github.io/portfolio/">Check out my landing page / portfolio</a>
 
 ## 📩 How to reach me
