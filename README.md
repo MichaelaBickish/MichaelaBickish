@@ -1,23 +1,18 @@
 ### Hi there 👋
 
-I'm Michaela Bickish. I am a web developer.
-
-I enjoy creating improved efficient solutions and learning something new along the way.
+Hi, I'm Michaela.
 
 - 🔭 I’m a full-stack software developer!
 - 🖥 <a href ="https://michaelabickish.github.io/portfolio/">Check out my landing page / portfolio</a>
 
 ## 📩 How to reach me
-mmbickish@gmail.com | www.linkedin.com/in/michaela-bickish
+www.linkedin.com/in/michaela-bickish
 
 ## About Me
-- 💬 I enjoy talking all things business, entrepreneurship & personal finance
-- 🏕 Always 100% ready for good hiking, camping & outdoor adventures
-- One of my favorite hobbies is being a novice herbalist. Foraging medicinal plants & creating my own botanical products makes me happy.
-- 🎵 I have a deep appreciation for theatre and the arts
-- 😄 Yoga, meditation and intentional movement are simple acts that light my soul up
-- ⚡ Fun random fact: I have an ancestor who was an English military officer that sailed on the Mayflower's first voyage (Myles Standish)
-
+- 💬 I enjoy talking business, entrepreneurship & personal finance
+- 🏕 I'm always 100% ready for good hiking, camping & outdoor adventures
+- One of my favorite hobbies is being a novice herbalist. I create small-batch cosmetics at bmebotanicals.com!
+- 🎵 I have a true appreciation for theatre and the arts
 
 #### *My personal mantras...*
 
