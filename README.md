@@ -11,7 +11,7 @@ www.linkedin.com/in/michaela-bickish
 ## About Me
 - 💬 I enjoy expanding my knowledge on business, entrepreneurship & personal finance.
 - 🏕 The outdoors is good for the soul. I love hiking, camping & outdoor adventures.
-- Being a novice herbalist is one of my favorite hobbies. I handcraft small-batch skincare at <a href="https://bmebotanicals.com">B & Me Botanicals</a>!
+- Herbalism is a favorite hobby of mine and I lead a holistic lifestyle. Check out my small business catered to families and 'the conscious home'-- <a href="https://b-me.co.com">B & Me Company</a>!
 
 #### *My personal mantras...*
 
