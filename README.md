@@ -8,11 +8,6 @@ Hi, I'm Michaela.
 ## 📩 How to reach me
 www.linkedin.com/in/michaela-bickish
 
-## About Me
-- 💬 I enjoy expanding my knowledge on business, entrepreneurship & personal finance.
-- 🏕 The outdoors is good for the soul. I love hiking, camping & outdoor adventures.
-- Herbalism is a favorite hobby of mine and I lead a holistic lifestyle. Check out my small business catered to families and 'the conscious home'-- <a href="https://b-me.co">B & Me Company</a>!
-
 #### *My personal mantras...*
 
 "Kind words cost nothing"
